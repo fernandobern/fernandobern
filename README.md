@@ -1,5 +1,5 @@
 # 💫 About Me:
-Dsenvolvedor e Designer.
+Desenvolvedor e Designer.
 
 
 ## 🌐 Socials:
