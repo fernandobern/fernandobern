@@ -1,4 +1,4 @@
-# 💫 About Me:
+#Eu sei fazer algumas coisas:
 Desenvolvedor e Designer.
 
 
